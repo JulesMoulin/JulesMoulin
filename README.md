@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JulesMoulin
-- 👀 I’m interested in a lot of thing but certanly in biology / science and sport
+- 👀 I am interested in many things, but mostly in biology, science in general and a bit of sports.
 - 🌱 I’m currently learning Biology 
 - 📫 How to reach me moulinavent34@gmail.com
 
